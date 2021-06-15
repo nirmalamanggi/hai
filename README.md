@@ -1,0 +1,2 @@
+# hai
+Latihan
